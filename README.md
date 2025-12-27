@@ -1,16 +1,26 @@
-## Hi there 👋
+# 👋 Hi, I'm Sammy – Professional Web Developer & eCommerce Specialist
 
-<!--
-**SammyDesignPro/SammyDesignPro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🚀 I help businesses build high-converting online stores, professional websites, and powerful brand identities.
 
-Here are some ideas to get you started:
+## 💼 What I Do
+✔️ Shopify Store Design & Development
+✔️ WordPress Website Creation
+✔️ Responsive Website Development
+✔️ Branding & Logo Design
+✔️ Graphics Design & Marketing Materials
+✔️ Store Optimization & Sales Conversion Boost
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+## 🏆 Why Clients Work With Me
+✨ Modern & Professional Designs
+✨ Fast delivery with great communication
+✨ User-friendly and business-focused designs
+✨ I focus on real results, not just design
+
+---
+
+## 📞 Contact Me 09139193450
+📧 Email: YOUR EMAIL ogahflair00@gmail.com
+💬 WhatsApp: YOUR NUMBER 2349139193450
+🌍 Portfolio / Social UR Lhttps://wa.me/2349139193450
