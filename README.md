@@ -23,4 +23,4 @@
 ## 📞 Contact Me 09139193450
 📧 Email: YOUR EMAIL ogahflair00@gmail.com
 💬 WhatsApp: YOUR NUMBER 2349139193450
-🌍 Portfolio / Social UR Lhttps://wa.me/2349139193450
+🌍 Portfolio / t.me/SammyDesignPro
